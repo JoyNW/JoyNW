@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning Python,Html,CSS,UI/UX
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me Nwadikechizaram@mail.com
+- 📫 How to reach me Nwadikechizaram@Ggmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: im aNurse looking to transition to Tech
 
